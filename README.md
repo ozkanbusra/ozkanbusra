@@ -1,1 +1,12 @@
-# ozkanbusra
+# ozkanbusra  Ben Büşra. Annemin de deyişiyle: Deliha. Ama siz beni yinede Büşra olarak tanıyın. Yıl 1994 bir kış günü dünyaya geldim. Hoşgeldim! İzmir - Buca doğumluyum. Nam-ı değer İzmir kızıyım. Ama İzmir kızları kadar güzel miyim orası tartışılır. Neyse konuya dönelim..
+
+İzmir doğumlu olsam bile bazı sebeplerden  dolayı eğitim hayatıma Denizli'de devam ettim. Sene 2008 Meslek Lisesi Muhasebe Bölümü'ne başladım. Her ne kadar İzmir'de o çok istediğim Sağlık Meslek Lisesi'ni kazanmış olsamda Denizli'ye taşınmamdan ötürü şartlar beni bu bölümle tanıştırdı. 2012 yılında mezun oldum. Tabii o zamanlar sıcak bakmadığım bir bölüm olduğu için derslerden uzaktım. İyiki de uzak kalmışım bu bana can sıkıntısından YGS'ye hazırlanmaya ve test çözmeye yoğunlaştırdı. Öyle böyle derken beşinci tercihim ve son dakika eğitmenimin ısrarı üzerine 'gelmez nasıl olsa' diye araya bir yerlere eklediğim Afyon Kocatepe ÜniversitesiMuhasebe  Bölümü'nü kazandım. Okudukça hayatımın ne kadar istem dışı hareket ettiği izlenimine kapılacaksınız fakat herşey tam da burada başladı. Bizim zamanımızda, yani çok geçmiş değil 2012'de Lisans bölümü kazanmak büyük bir başarıydı 'benim kız da 4 yıllık kazandı' diyen aileler vardı ve ben başarmıştım. 
+
+Derler ya üniversitede hem işini hem eşini bulursun diye ben eşimi  bulmuş fakat işimi bulamamıştım. 6 yıllık (4 yıllık bir üniversite de, evet...)  zorlu bir eğitimin sonunda mezun oldum. Baktım ben zaten stres dolu bir yapıya sahibim ve bu iş fazlaca stres dolu mezun olduktan sonra ilk işim Pedagojik Formasyon başvurusu yapmak oldu. Çok şükür kabul edildi. Şuan Gebze Teknik Üniversitesin de eğitimimi tamamlıyorum.
+Biraz zevk aldığım birkaç şeyden bahsetmek isterim. Müzik dinlemek şüphesiz ki vazgeçilmezlerim arasında yer alır. Çoğu zaman ilham kaynağım odur. Tam da şuan olduğu gibi... Bunun dışında film/dizi izlemeyi, kitap okumayı, temizlik yapmayı, yemek yapmayı ve çamaşır suyu kokl.... Fazla aşırıya kaçmış olabilirim. Evet, devam edelim. Tarz olarak filmlerde romantik, dram ve fantastik tercih etsem de kitaplarda macera, bilim-kurgu ve biyografi genellikle ilgi alanıma girer.  
+
+Bir şiir okuduğumda, film izlediğimde hatta yemek bile yaptığımda ailem, arkadaş çevrem ve sosyal platformlar da paylaşmam Steemit'e de yazar olmama vesile oldu. 
+
+Bu harika yazım da elimden geldiğince kendimi sizlere tanıtmaya çalıştım. Umarım yapabilmişimdir. Daha nice yazılarda buluşmak dileğiyle.
+
+ Hoşçakalın, esen kalın...
